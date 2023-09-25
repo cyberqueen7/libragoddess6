@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @libragoddess6
+- 👋 Hi, I’m @cyberqueen7
 - 👀 I’m interested in Cybersecurity, Astrology, Health, Travel and Teaching...
 - 🌱 I’m currently learning ...security tools specifically application software testing
 - 💞️ I’m looking to collaborate on ...projects in the security, pentesting, appsec, astrology, hacking, children's education, health and travel.
